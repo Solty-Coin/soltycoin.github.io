@@ -1,0 +1,1 @@
+# soltycoin.github.io
